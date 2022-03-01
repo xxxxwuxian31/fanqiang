@@ -1,12 +1,4 @@
-# 翻墙、科学上网工具＆VPN梯子推荐
-
-
-> *紧急更新： 最近光年好多网友反应无法连接服务器，大概率是跑路。目前我们也在想办法联络光年VPN
-> 
-> 大家可以使用ExpressVPN 紧急连接。* **<a rel="nofollow noopener" href="https://www.xvbelink.com/?a_fid=tizi_vpn&chan=gitfqmm&data1=fanqiangvpngitio" target="_blank">ExpressVPN【买一年送三个月】</a>** 
-> 或者最近开展亚洲业务，于2004年成立的老牌VPN <a rel="nofollow noopener" href="https://reliablevpn.net/?tr_aid=5f856c291d7a8&data1=gitfqmm&data2=fanqiangvpngitio" target="_blank">StrongVPN</a>
-
----
+# 2022国内最好梯子推荐！ 免费试用翻墙、免费试用科学上网、免费节点、免费梯子、免费ss/v2ray/trojan节点、蓝灯、谷歌商店、翻墙梯子、代理、机场、看片神器
 
 |  梯子推荐榜   | 推荐指数 | 官网地址  | 备用网址1 | 备用网址2 |
 |  ----  | ----  | ---- | ---- | ---- |
